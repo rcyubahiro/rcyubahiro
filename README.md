@@ -2,7 +2,7 @@
 - 👀 I'm interested in Tech 
 - 🌱 I'm currently learning at ALU in Software engineering 
 - 💞️ I'm looking to collaborate on any certain project
-- 📫 How to reach me Cyubahiror003@gmail.com
+- 📫 How to reach me r.cyubahiro@alustudent.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love to drink much more water
 
